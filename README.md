@@ -1,6 +1,6 @@
 Privacy Policy for MFC Homes
 
-Effective Date: [Insert Date]
+Effective Date: 13th July, 2025
 
 At MFC Homes, your privacy is important to us. This Privacy Policy explains how we collect, use, and protect your information when you use our app.
 
